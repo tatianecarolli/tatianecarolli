@@ -1,3 +1,11 @@
+<img src="https://imgur.com/vjW64kJ">
+
+
+
+
+
+
+
 ## Olá, aqui é a Tati! 👋
 
 Sou brasileira e moro no Distrito Federal. 🇧🇷
