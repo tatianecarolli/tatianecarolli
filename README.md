@@ -4,7 +4,7 @@ Sou brasileira e moro no Distrito Federal. 🇧🇷
 
 Sou graduanda em Analise e Desenvolvimento de Sistemas e estudante de programaçâo. 🖥️ 📚
 
-Também sou multiartista amadora, apaixonada pelas setes artes. 🎨 🎭 
+Também sou multiartista amadora, apaixonada pelas sete artes. 🎨 🎭 
 
 Desejo aprender muitas coisas e compartilhar las todas aqui :)
 
