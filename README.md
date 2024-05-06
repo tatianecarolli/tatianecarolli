@@ -1,6 +1,6 @@
 ## Olá, aqui é a Tati!
 
-Moro no DIstrito Federal.
+Moro no DIstrito Federal. Brasil.
 
 Sou graduanda em Analise e Desenvolvimento de Sistemas e estudante de programaçâo.
 
